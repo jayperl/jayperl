@@ -1,0 +1,6 @@
+- 👋 hey, I’m @jayperl!
+- 👀 i'm interested in software engineering & website design
+- 🌱 i'm currently learning computer engineering @ UNO
+- 💞️ i'm looking to collaborate on web advertising, blogging, & VA work
+- 📫 how to reach me: jaym.e@icloud.com
+- 😄 pronouns are she/her/hers
